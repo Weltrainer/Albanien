@@ -14,7 +14,7 @@
 - [Hotel Legjenda](https://www.booking.com/Share-c8ExMWY)
 
 ### Mittwoch 26.8. Theth
-- Hotel fehlt
+- ?
 
 ### Donnerstg 27.8. Theth
 - [Molla Guest House](https://www.booking.com/Share-HRLv3yj)
