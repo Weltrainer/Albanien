@@ -11,7 +11,7 @@
 ## Reise
 
 ### Dienstag 25.8. Shkodra
-- [Hotel Legjenda](https://www.booking.com/Share-c8ExMWY)
+- [Hotel Legjenda](https://www.booking.com/Share-dGV7fnb)
 
 ### Mittwoch 26.8. Theth
 - ?
