@@ -14,10 +14,13 @@
 - [Hotel Legjenda](https://www.booking.com/Share-dGV7fnb)
 
 ### Mittwoch 26.8. Theth
-- ?
+- [Forest Escape](https://www.booking.com/Share-8AUkBg)
+- [Walter&Drita](https://www.booking.com/Share-HrPvpNh)
 
 ### Donnerstg 27.8. Theth
 - [Molla Guest House](https://www.booking.com/Share-HRLv3yj)
+- [Forest Escape](https://www.booking.com/Share-8AUkBg)
+- [Walter&Drita](https://www.booking.com/Share-HrPvpNh)
 
 ### Freitag 28.8. 
 - [Mrizi i Zanave Agritourismo](https://www.booking.com/Share-L4EEE7)
