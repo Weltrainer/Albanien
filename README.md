@@ -49,17 +49,17 @@
 - [Apart Hotel Alex](https://www.booking.com/Share-cp3Xg6)
 - [Guesthouse Rondo](https://www.booking.com/Share-HrmDGe) entscheiden ob 1. oder 2. Stock
 - [Roots Dhermi](https://www.booking.com/Share-6d40lC) ginge auch ohne kostenlose Stornierung 20€ billiger
-- [Llogora Tourist Village] (https://www.booking.com/Share-DAyXRoY)
+- [Llogora Tourist Village](https://www.booking.com/Share-DAyXRoY)
 - [Rahoni Park & Appartments](https://www.booking.com/Share-vlZ3Y5o)
 
 ### Samstag 5.9. Dhermi
 - [Roots Dhermi](https://www.booking.com/Share-6d40lC) ginge auch ohne kostenlose Stornierung 20€ billiger
-- [Llogora Tourist Village] (https://www.booking.com/Share-DAyXRoY)
+- [Llogora Tourist Village](https://www.booking.com/Share-DAyXRoY)
 - [Rahoni Park & Appartments](https://www.booking.com/Share-vlZ3Y5o)
 
 ### Sonntag 6.9. Dhermi
 - [Roots Dhermi](https://www.booking.com/Share-6d40lC) ginge auch ohne kostenlose Stornierung 20€ billiger
-- [Llogora Tourist Village] (https://www.booking.com/Share-DAyXRoY)
+- [Llogora Tourist Village](https://www.booking.com/Share-DAyXRoY)
 - [Rahoni Park & Appartments](https://www.booking.com/Share-vlZ3Y5o)
 
 ### Montag 7.9. Tirana(?)
